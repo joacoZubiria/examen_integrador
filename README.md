@@ -3,3 +3,4 @@ Joaquin Zubiria Mansilla Tomas
 Martina Cha
 Natalia Oliveira
 Mathias Herrera
+grupo 7
